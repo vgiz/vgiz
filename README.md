@@ -2,7 +2,7 @@
 - 👀 I’m interested in scripts
 - 🌱 I’m currently learning codes
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me idk lol
+- 📫 How to reach me discord: githubdude78 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like trains
 
